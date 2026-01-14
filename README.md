@@ -9,4 +9,8 @@ i like interactions i like friends i WILL sign your atabook i WILL crown you i W
 
 i'm normally around my friends but if i'm aurafarming alone (i know i know i'm 6'4 and nonchalant) you're welcome to sit with me Smile . Or I Dont Know Talk to me Please talk to m
 
+<img width="2000" height="2000" alt="Untitled1333_20260114150724" src="https://github.com/user-attachments/assets/5af9259c-3bf3-48cd-8a7e-b81476d0499c" />
+
+we are quag!
+
 to my friends: you are to refer to me as whatever but please a little less joy :-) just for reasons an 🍊 girl can hold
