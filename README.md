@@ -9,4 +9,4 @@ i like interactions i like friends i WILL sign your atabook i WILL crown you i W
 
 i'm normally around my friends but if i'm aurafarming alone (i know i know i'm 6'4 and nonchalant) you're welcome to sit with me Smile . Or I Dont Know Talk to me Please talk to m
 
-to my friends: you are to refer to me as whatever but please a little less.. "Joy" :-) just for reasons an 🍊 girl can hold 
+to my friends: you are to refer to me as whatever but please a little less joy :-) just for reasons an 🍊 girl can hold
