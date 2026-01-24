@@ -16,3 +16,9 @@ $\color{#FF8757}{gosh}$ $\color{#874A99}{i}$ $\color{#FF8757}{wish}$ $\color{#87
 <img width="2000" height="2000" alt="Untitled1333_20260114150724" src="https://github.com/user-attachments/assets/5af9259c-3bf3-48cd-8a7e-b81476d0499c" >
 
 i love my friends dearly
+
+
+
+https://github.com/user-attachments/assets/7329c493-6ca5-483d-9588-ddcaa44cb0be
+
+
