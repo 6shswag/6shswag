@@ -1,10 +1,13 @@
-<img width="3000" height="2293" alt="Untitled1331_20260114032020" src="https://github.com/user-attachments/assets/11d47f40-9997-4914-9331-ee27371a9661" />
+<img width="3000" height="1758" alt="Untitled1359_20260124142912" src="https://github.com/user-attachments/assets/0995c6f4-c38a-4eb1-a17b-e1f4a53912bb" />
 
-[atabook](https://squidswag.atabook.org)
- 
-every year that goes by i just seem to get older
+<p align="center">
+  $\color{#FF8757}{jestful \space orange \space girl}$
+</p>
+
 
 <img width="2000" height="2000" alt="Untitled1333_20260114150724" src="https://github.com/user-attachments/assets/5af9259c-3bf3-48cd-8a7e-b81476d0499c" />
 
-we are quag!
+[ata](https://squidswag.atabook.org) [links](https://guns.lol/therealsquiddo)
+
+please interact with me sometimes i feel like lifesteal lane hates me
 
