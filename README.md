@@ -5,11 +5,6 @@
 $\color{#FF8757}{hug}$ $\color{#874A99}{me}$ $\color{#FF8757}{and}$ $\color{#874A99}{goodbye}$ $\color{#FF8757}{!}$
 </p>
 
-<p align="center">
-<img src="https://komarev.com/ghpvc/?username=6shswag&label= all-my-friends!&color=FF8757&style=water" align="left">
-</p>
-
-
 
 joy *"general squiddous" "orange girl" "big J" "baby jouy" "saya" "squidling #1" "YOU'RE EVERYWHERE" "glitchduo #1 fan" "* squidswag
 
