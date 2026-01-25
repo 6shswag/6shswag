@@ -6,7 +6,7 @@ $\color{#FF8757}{hug}$ $\color{#874A99}{me}$ $\color{#FF8757}{and}$ $\color{#874
 </p>
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=germanstare&label= hi&color=FF8757&style=water" align="left">
+<img src="https://komarev.com/ghpvc/?username=6shswag&label= all-my-friends!&color=FF8757&style=water" align="left">
 </p>
 
 
