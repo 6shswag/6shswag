@@ -6,9 +6,11 @@ $\color{#FF8757}{hug}$ $\color{#874A99}{me}$ $\color{#FF8757}{and}$ $\color{#874
 </p>
 
 
-joy *"general squiddous" "orange girl" "big J" "baby jouy" "saya" "squidling #1" "YOU'RE EVERYWHERE" "glitchduo #1 fan" "* squidswag
+joy *"faith" "general squiddous" "orange girl" "big J" "baby jouy" "saya" "squidling #1" "YOU'RE EVERYWHERE" "glitchduo #1 fan" "filipino squiddo" "I'm Otter Here" "J-Money"* squidswag
 
-i'm an 🍊 that doesn't bite, don't be shy! [ata](https://squidswag.atabook.org), [links](https://guns.lol/therealsquiddo)
+mostly jesting around my friends in mcyt hill. want to be my friend? deal with my weekly :squidswags: [ata](https://squidswag.atabook.org), [links](https://guns.lol/therealsquiddo)
+
+YES I AM ARTIST PLEASE DO NOT BE SCARED OF ME I AM :hashtag:BEGGING YOU we can be friends i am not mean
 
 <p align="center">
 $\color{#FF8757}{gosh}$ $\color{#874A99}{i}$ $\color{#FF8757}{wish}$ $\color{#874A99}{we}$ $\color{#FF8757}{had}$ $\color{#874A99}{more}$ $\color{#FF8757}{time}$ $\color{#874A99}{!}$ $\color{#FF8757}{we}$ $\color{#874A99}{can}$ $\color{#FF8757}{learn}$ $\color{#874A99}{and}$ $\color{#FF8757}{play}$ $\color{#874A99}{all}$ $\color{#FF8757}{night}$ $\color{#874A99}{!}$ 𝜗𝜚⋆₊˚
@@ -21,5 +23,6 @@ i love my friends dearly
 
 
 https://github.com/user-attachments/assets/7329c493-6ca5-483d-9588-ddcaa44cb0be
+
 
 
