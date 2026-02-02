@@ -6,7 +6,7 @@ $\color{#FF8757}{hug}$ $\color{#874A99}{me}$ $\color{#FF8757}{and}$ $\color{#874
 </p>
 
 
-joy *"faith" "general squiddous" "orange girl" "big J" "baby jouy" "saya" "squidling #1" "YOU'RE EVERYWHERE" "glitchduo #1 fan" "filipino squiddo" "I'm Otter Here" "J-Money"* squidswag
+joy "faith" "general squiddous" "big J" "baby jouy" "saya" "YOU'RE EVERYWHERE" "glitchduo #1 fan" "filipino squiddo" "I'm Otter Here" "J-Money" squidswag
 
 mostly jesting around my friends in mcyt hill. want to be my friend? deal with my (daily hourly minutely secondly weekly squidly) squidswags [ata](https://squidswag.atabook.org), [links](https://guns.lol/therealsquiddo)
 
