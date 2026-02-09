@@ -6,7 +6,7 @@ $\color{#FF8757}{hug}$ $\color{#874A99}{me}$ $\color{#FF8757}{and}$ $\color{#874
 </p>
 
 
-[ata](https://squidswag.atabook.org), [links](https://guns.lol/therealsquiddo)
+[ata](https://squidswag.atabook.org), [links](https://guns.lol/therealsquiddo) i have trouble socializing + i have mdd please be patient
 
 
 <p align="center">
