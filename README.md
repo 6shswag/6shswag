@@ -8,6 +8,7 @@ $\color{#FF8757}{hug}$ $\color{#874A99}{me}$ $\color{#FF8757}{and}$ $\color{#874
 
 [ata](https://squidswag.atabook.org), [links](https://guns.lol/therealsquiddo) c&h is okay :-)
 
+online only to nap in the sun zzz.... snoore 🐈
 
 <p align="center">
 $\color{#FF8757}{gosh}$ $\color{#874A99}{i}$ $\color{#FF8757}{wish}$ $\color{#874A99}{we}$ $\color{#FF8757}{had}$ $\color{#874A99}{more}$ $\color{#FF8757}{time}$ $\color{#874A99}{!}$ $\color{#FF8757}{we}$ $\color{#874A99}{can}$ $\color{#FF8757}{learn}$ $\color{#874A99}{and}$ $\color{#FF8757}{play}$ $\color{#874A99}{all}$ $\color{#FF8757}{night}$ $\color{#874A99}{!}$ 𝜗𝜚⋆₊˚
